@@ -7,7 +7,7 @@
 - **Interests:** Programming
 - **Currently Learning:** Programming and languages
 - **Looking to Collaborate On:** Nothing currently
-- **Contact:** Reach me through [Telegram](#)
+- **Contact:** Reach me through [Telegram]
 
 ---
 
